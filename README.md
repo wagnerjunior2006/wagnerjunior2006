@@ -1,0 +1,2 @@
+- 👋 Eai, Me chamo Wagner Junior!!
+- 👀 Estou querendo aprender sobre programação
